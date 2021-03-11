@@ -1,4 +1,5 @@
-# Five people who were among the first in Vietnam to be injected with a COVID-19 vaccine developed by AstraZeneca/Oxford have experienced side effects, according to the Ministry of Health.
+# Vietnam records side effects after COVID-19 vaccination
+Five people who were among the first in Vietnam to be injected with a COVID-19 vaccine developed by AstraZeneca/Oxford have experienced side effects, according to the Ministry of Health.
 
 Since the launch of the COVID-19 vaccination on Monday, a total of 522 medical workers, who are directly treating COVID-19 patients, conducting sampling and testing, and performing contact-tracing tasks, have received the shots, according to the Expanded Program on Immunization.
 
